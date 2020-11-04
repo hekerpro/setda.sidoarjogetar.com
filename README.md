@@ -1,1 +1,0 @@
-# setda.sidoarjogetar.com
